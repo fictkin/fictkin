@@ -1,4 +1,5 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://cdn.pfps.gg/banners/9788-shinji-ikari.png)
+
+![](https://cdn.pfps.gg/banners/9788-shinji-ikari.png)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://64.media.tumblr.com/0ae853fc4d7d8bd12185186b88eb7b1e/c52ad6fcb3de7f16-96/s250x400/43ecb68f99374fa373b7faed7c2cf7fc8deb3810.gifv)
 
