@@ -8,7 +8,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀. . *will soon take flight through the window* . ㇁
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://i.ibb.co/ZWRDYHb/IMG-6420.gif) ⠀⠀⠀⠀⠀⠀⠀⠀✦ ⠀⠀⠀⠀⠀⠀⠀⠀ [![](https://i.ibb.co/pPWBQqx/IMG-6416.gif)](https://rentry.co/overclocks) ⠀⠀⠀⠀⠀⠀⠀⠀ ✦ ⠀⠀⠀⠀⠀⠀⠀⠀ ![](https://i.ibb.co/ZWRDYHb/IMG-6420.gif)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀ ⠀![](https://i.ibb.co/ZWRDYHb/IMG-6420.gif) ⠀⠀⠀⠀⠀⠀⠀⠀✦ ⠀⠀⠀⠀⠀⠀⠀⠀ [![](https://i.ibb.co/pPWBQqx/IMG-6416.gif)](https://rentry.co/overclocks) ⠀⠀⠀⠀⠀⠀⠀⠀ ✦ ⠀⠀⠀⠀⠀⠀⠀⠀ ![](https://i.ibb.co/ZWRDYHb/IMG-6420.gif)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀![](https://64.media.tumblr.com/6ff0e23f31edd1230bd818bf833f7d4a/1dc5e47a1373ca04-f5/s75x75_c1/ba089721888b7063f082a1287e8925e8447ec919.gifv) ⠀⠀ㄑ⠀overclock⠀˖⠀ ver
 ⠀⠀⠀⠀⠀shinji ikari irl ꒱
